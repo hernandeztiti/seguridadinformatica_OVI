@@ -1,1 +1,0 @@
-# seguridadinformatica_OVI
